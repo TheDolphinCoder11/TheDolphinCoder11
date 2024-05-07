@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @TheDolphinCoder11
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning Web Dev
-- 💞️ I’m looking to collaborate on Nothing
+- 💞️ I’m looking to collaborate on A do to app
 - 📫 How to reach me DM me by instagram @kylerissocool11
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: Nothing
